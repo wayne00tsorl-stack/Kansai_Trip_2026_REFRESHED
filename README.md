@@ -1,0 +1,1 @@
+# Kansai_Trip_2026_REFRESHED
